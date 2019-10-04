@@ -3,3 +3,6 @@
 
 "I'll have a grande pumpkin spice late."
 -Every White Girl Ever, October to December
+
+"Hold my beer."
+-Deceased
